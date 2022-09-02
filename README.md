@@ -1,1 +1,1 @@
-I am learning new things everyday
+Understanding new things
